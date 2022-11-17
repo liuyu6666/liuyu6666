@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @liuyu6666
+- 👀 I’m interested in computerscience ,mainly about network skills
+- 🌱 I’m currently learning hacking skills 
+- 💞️ I’m looking to collaborate on wechai or qq,my email address is 1442122040@qq.com
